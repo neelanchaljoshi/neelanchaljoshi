@@ -1,7 +1,7 @@
 ## Hi, I'm Neelanchal Joshi
 
-PhD candidate at the **Max Planck Institute for Solar System Research**, Göttingen.  
-Finishing June 2026 · Moving to the Netherlands · Open to industry roles from October 2026.
+Astrophysicist at the **Max Planck Institute for Solar System Research**, Göttingen.  
+Recently graduated with a PhD in Physics (June 2026) · Moving to the Netherlands · Open to industry roles from October 2026.
 
 ---
 
